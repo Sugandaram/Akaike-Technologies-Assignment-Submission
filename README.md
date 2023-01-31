@@ -1,1 +1,0 @@
-# Akaike-Technologies-Assignment-Submission
